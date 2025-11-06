@@ -1,2 +1,2 @@
 
-⠀⠀⠀⠀⠀⠀⠀⠀![1](https://files.catbox.moe/umgu3p.jpeg)
+⠀⠀⠀⠀⠀![1](https://files.catbox.moe/umgu3p.jpeg)
